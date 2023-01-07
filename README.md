@@ -32,4 +32,4 @@ This Also Fresh Reinstalls Windows Which Helps You With HWID Bans
 
 this allows better access to mods, (i dont use cleaners they mess with my pc but they will unban you)
 
-(too big to add) https://mega.nz/file/0gdlDKRa 
+(too big to add) https://mega.nz/file/0gdlDKRa "Key: Y1l8B0VTJ6N5nAJd68DOS6IqczMddUJSO160egKpktY"
