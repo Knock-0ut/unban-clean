@@ -30,4 +30,4 @@ This Also Fresh Reinstalls Windows Which Helps You With HWID Bans
 
 11) Now it will run through the windows install and after thats done you will now be on the desired Winver.
 
-this allows better access to mods
+this allows better access to mods, (i dont use cleaners they mess with my pc but they will unban you)
